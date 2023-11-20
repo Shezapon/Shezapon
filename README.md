@@ -1,0 +1,2 @@
+- ZX8 2IPD D6 Some82
+- do Vz7 s ~ LQH FOR NOW.×+×+×+×+×+
